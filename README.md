@@ -19,7 +19,6 @@ I like to be in the fandoms of:
 - Almost anything Greek mythology related (other than Lore Olympus)
 - Forsaken 
 - Regretevator
-- Termination Protocol
 - Hetalia
 
 , Aaand etc.
